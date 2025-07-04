@@ -44,3 +44,7 @@ All hash values and time-based proof were generated with AI assistance to ensure
 You are welcome to study, reference, or expand upon this concept — please credit the original author where appropriate.
 
 ---
+
+I only wish to offer a small contribution to humanity.
+If even one person finds inspiration from this idea, that alone is enough for me.
+— CHRIS TAM, July 2025
